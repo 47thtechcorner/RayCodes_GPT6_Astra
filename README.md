@@ -1,6 +1,6 @@
 <div align="center">
   <a href="https://youtube.com/shorts/-ZEzwlXApsU">
-    <img src="https://img.youtube.com/vi/-ZEzwlXApsU/0.jpg" alt="GPT-6.2 Astra Destroys Claude Fable! #Shorts #OpenAI #GPT6">
+    <img src="https://img.youtube.com/vi/-ZEzwlXApsU/0.jpg" alt="GPT-6.2 Astra Destroys Claude Fable at 5% Cost? 🤯 #Shorts #AI #GPT6">
   </a>
   <h3>📺 <a href="https://youtube.com/shorts/-ZEzwlXApsU">Watch the full video on YouTube</a></h3>
 </div>
